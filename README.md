@@ -1,7 +1,4 @@
-### Hi there 👋
-
-<
-Hello! My name is Maria Sol Escobares 🙌
+### Hello! My name is Maria Sol Escobares 🙌
 
 Who am I? 😊
 
